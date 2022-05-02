@@ -1,1 +1,10 @@
-# Disney-ID
+## Disney+ ID    
+### 更新时间 2022-05-02
+-----------------------------------------
+### 账号：
+# 1618h5@4kgk.com
+### 密码：
+# we1234
+-----------------------------------------
+### 为了保证长期使用，请不要修改任何资料
+#### In order to ensure long-term use, please do not modify any information
